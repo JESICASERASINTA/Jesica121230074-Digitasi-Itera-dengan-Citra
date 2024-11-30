@@ -1,0 +1,2 @@
+# Jesica121230074-Digitasi-Itera-dengan-Citra
+INSTITUT TEKNOLOGI SUMATERA
